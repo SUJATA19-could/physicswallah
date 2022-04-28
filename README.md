@@ -1,1 +1,1 @@
-# physicswallah Q1.
+# physicswallah
